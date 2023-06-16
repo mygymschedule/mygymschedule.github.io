@@ -1,1 +1,0 @@
-# mygymschedule.github.io
